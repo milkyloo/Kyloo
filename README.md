@@ -1,5 +1,5 @@
 # Hello I am Kyloo!I play roblox and minecraft..
-Adopt Me Private Server:
+Adopt Me:
 <html>
 <head>
 </head>
